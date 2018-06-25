@@ -1,8 +1,8 @@
-The Maine
+Motionless In White
 
-http://15982.hosts.ma-cloud.nl/ma/bewijzenmap/periode1.4/project_myband/index.php is een website van Chariesa
-waar gebruikers informatie kunnen vinden over de band The Maine bedoeld voor fan leden van The Maine.
-De website is enigszins te vergelijken met Skillet of East of eli maar toch anders omdat ik er een eigen stijl aan heb gegeven.
+ is een website van Valerie,
+waar gebruikers informatie kunnen vinden over de band Motionless In White bedoeld voor fans van de band.
+De website is enigszins te vergelijken met Slipknot of Bring Me The Horizon, maar toch anders omdat ze op een hele andere manier muziek maken.
 
 Uniek aan dit concept is:
 
